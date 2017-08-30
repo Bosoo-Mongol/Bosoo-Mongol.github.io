@@ -1,0 +1,1 @@
+# Bosoo-Mongol.github.io
